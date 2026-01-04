@@ -1,2 +1,2 @@
-# Amigordosam-igor
+# Amigor dos am-igor
 Só apoia
